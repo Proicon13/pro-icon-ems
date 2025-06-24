@@ -1,6 +1,6 @@
 # Privacy Policy – Pro Icon EMS
 
-**Effective Date:** [Insert Date]  
+**Effective Date:** June 23, 2025  
 **App Name:** Pro Icon EMS  
 **Developer:** Pro Icon  
 **Website:** https://pro-icon.com  
